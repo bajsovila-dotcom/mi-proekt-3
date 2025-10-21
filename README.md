@@ -1,1 +1,0 @@
-# mi-proekt-3
